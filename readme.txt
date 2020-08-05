@@ -1,3 +1,4 @@
 Please£¡£¡£¡£¡£¡£¡£¡£¡£¡£¡£¡
 Read me£¡£¡£¡£¡£¡£¡£¡£¡£¡£¡
 Quickly£¡£¡£¡£¡£¡£¡£¡£¡£¡£¡£¡
+Hurry Up£¡£¡
